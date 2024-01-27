@@ -2,7 +2,7 @@
 - 👀 I’m interested in acquiring and sharing knowledge with brilliant minds
 - 🌱 I’m currently learning web development, neuroscience, and astrophysics
 - 💞️ I’m looking to collaborate on web development, machine learning analytics, ai, volunteer 
-- 📫 joeyrdavalos@gmail.com
+- 📫 working on it!
 - 😄 Planet: Earth
 - ⚡ Food for thought: In the event we are living in one of an infinite number of simulations, let us make this simulation known for kindness, love, and acheiving the wildest dreams.  
 
